@@ -11,7 +11,7 @@
 ![The Shellhouse](https://washingtonrowing.com/wp-content/uploads/2015/08/Miller-Hull-Photos-of-Boathouse-Credit-Nic-Lehoux-018-2-750x330.jpg)
 
 
-Pictured above is the modern **Conibear Shellhouse** on the University of Washington campus. Pictured below, The [old Shellhouse](https://historylink.org/File/20681) sits South of the Husky Stadium and was originally built in *1918*.
+**Pictured** above is the modern **Conibear Shellhouse** on the University of Washington campus. Pictured below, The [old Shellhouse](https://historylink.org/File/20681) sits South of the Husky Stadium and was originally built in *1918*.
 
 ![images](https://historylink.org/Content/Media/Photos/Large/university-of-washington-asuw-shell-house-union-bay-1923.jpg)
 
